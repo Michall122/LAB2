@@ -10,3 +10,9 @@ spodobało się tam kurze.
 
 Na podwórzu dużo kurzu,
 piórko,trawka i sadzawka
+
+Zżyci z restrykcjami
+Zdalne zajęcia już za nami
+
+Zdalne zajęcia tuż przed nami
+Nie widzimy się z innymi studentami
